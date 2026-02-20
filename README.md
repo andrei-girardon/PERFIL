@@ -1,4 +1,4 @@
-## Hi there, Welcome :stuck_out_tongue_winking_eye:
+## Hi there, Welcome :relaxed:
 
 
 Me chamo Andrei Girardon, ultimamente venho executando projetos com:
